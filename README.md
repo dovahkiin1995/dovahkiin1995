@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dovahkiin1995
+- 👋 Hi, I’m Malyaban
 - 👀 I’m interested in the mind
 - 🌱 I’m currently learning about the brain and computers
 - 💞️ I’m looking to collaborate on anything that excites me
